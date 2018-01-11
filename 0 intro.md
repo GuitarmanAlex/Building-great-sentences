@@ -19,3 +19,8 @@ we will stretch our sense of all the things a sentence can be or do.
 we will explore the mysterious concept of "style" to discover what style does and does not mean.
 this is a book in which we will dance with language,not a book in which we will trudge toward remedial correctness.
 
+dancing with language can be a rowdy affair.
+we might wish this dance had the precision,rules, and predictability of a tango,but it probably has much more in common with freestyle dancing that is more spontaneous and more creative ,open to new steps and encouraging the reinterpretation of old ones.
+when the writer dances with language,toes do sometimes get stepped on as rules are broken.
+of course,in dancing ,as in writing,we need some ideas of what the rules are before we can break them.
+before this dancing metaphor runs away with me, however,i better start talking as the writing teacher i am, rather than the dancing instructor i most certainly am not.
