@@ -1,3 +1,4 @@
-intro
+Introduction
 
-我们活着一个words的世界
+we live in a world of words.
+digital media inundate us with language in a 24/7 barrage never possible in the world of printer's ink.
